@@ -1,0 +1,17 @@
+🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻
+
+🙏🏻JAY SHREE GANESH🙏🏻 
+
+🙏🏻RADHE RADHE🙏🏻
+
+🙏🏻JAY SHREE KRISHNA🙏🏻
+
+🙏🏻Namah Parvati Pataye Har Har Mahadev🙏🏻
+
+🙏🏻Sankat Mochan Hanuman Dada ki Jay🙏🏻
+
+🙏🏻Om Namah Shivay🙏🏻
+
+🙏🏻 Jay Shree Kashtbhanjan Dev🙏🏻
+
+🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻🙏🏻
